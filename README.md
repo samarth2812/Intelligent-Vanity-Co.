@@ -10,7 +10,7 @@ COLORS OR PATTERNS, TO APPEAL TO A WIDER RANGE
 OF CUSTOMERS.
 <br>
 [![Se.jpg](https://i.postimg.cc/Mp2RgwXS/Se.jpg)](https://postimg.cc/svmvZtp6)
-[![S.png](https://i.postimg.cc/tTNpRhNk/S.png)](https://postimg.cc/gXjfNL5L)
+[![see.jpg](https://i.postimg.cc/8CGYpxX8/see.jpg)](https://postimg.cc/Wd98SYPS)
 #Customizable Elements<br>
 AI Integrated mirror<br>
 Features such as voice control, facial recognition,
