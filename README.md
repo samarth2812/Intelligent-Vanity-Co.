@@ -8,6 +8,7 @@ THE DRESSING TABLE CATERED TOWARDS THE NEEDS OF
 THE CUSTOMERS.DRESSING TABLE WILL BE WITH
 COLORS OR PATTERNS, TO APPEAL TO A WIDER RANGE
 OF CUSTOMERS.
+<br>
 #Customizable Elements
 AI Integrated mirror
 Features such as voice control, facial recognition,
