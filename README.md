@@ -9,6 +9,8 @@ THE CUSTOMERS.DRESSING TABLE WILL BE WITH
 COLORS OR PATTERNS, TO APPEAL TO A WIDER RANGE
 OF CUSTOMERS.
 <br>
+[![Se.jpg](https://i.postimg.cc/Mp2RgwXS/Se.jpg)](https://postimg.cc/svmvZtp6)
+[![s.jpg](https://i.postimg.cc/m2R1SwnL/s.jpg)](https://postimg.cc/PN3qXmh9)
 #Customizable Elements<br>
 AI Integrated mirror<br>
 Features such as voice control, facial recognition,
